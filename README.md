@@ -1,5 +1,5 @@
 # Akash
 
 # satish
-things to do are many.......... time to do many in infinite... thats where sorting comes
+things to do are many.......... time to do many is infinite... thats where sorting comes
 '
